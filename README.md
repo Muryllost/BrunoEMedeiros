@@ -26,7 +26,7 @@
 </p>
 
 <p align="left">
-  💌 Caso duvida entre em contato na aula ou via email: bruno.medeiros24@etec.sp.gov.br - bruno.medeiros@sp.senai.br
+  💌 Caso duvida entre em contato na aula ou via email: bruno.medeiros@sp.senai.br - bruno.emedeiros99@gmail.com
 </p>
 
 <p align="left">
